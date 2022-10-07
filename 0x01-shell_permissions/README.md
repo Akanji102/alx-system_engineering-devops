@@ -1,1 +1,1 @@
-Holy Spirit
+God
