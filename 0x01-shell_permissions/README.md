@@ -1,1 +1,1 @@
-a not empty README
+Shiny Star
